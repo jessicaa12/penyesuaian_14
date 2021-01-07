@@ -1,0 +1,1 @@
+# penyesuaian_14
